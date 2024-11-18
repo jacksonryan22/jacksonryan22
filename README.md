@@ -1,6 +1,5 @@
 ## Hi, I'm Jackson. 👋
 
-## Hi, I'm Mike. :wave:
 
 ### I am currently a Senior at the University of Iowa, Tippie College of Business. I thrive in collaborative environments and am always open to learning new skills.
 
